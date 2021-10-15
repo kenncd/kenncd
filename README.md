@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @kenncd
 - 🌱 I’m currently learning everything, I like to consider myself as a sponge.
+- 🎮 My favourite video game is Overwatch, Widow main.
 - 📫 Can find me @ kenyacastellanosd@gmail.com
 - ✨화이팅!✨
 
