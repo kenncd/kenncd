@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kenncd 
 - ⚙️  Industrial and Systems Engineer
-- 🎮 Favourite video game: Overwatch, widow main (Meloni#11719)
+- 🎮 Overwatch enthusiast (Meloni#11719)
 - 📫 Can find me @ kenyacastellanosd@gmail.com
 - ✨화이팅!✨
 <!---
