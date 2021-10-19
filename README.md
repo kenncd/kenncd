@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kenncd
-- 🎮 My favourite video game is Overwatch, Widow main.
+- 🎮 My favourite video game is Overwatch, widow main (Meloni#11719)
 - 📫 Can find me @ kenyacastellanosd@gmail.com
 - ✨화이팅!✨
 
