@@ -1,7 +1,10 @@
-- 👋 Hi, I’m @kenncd
-- 🎮 My favourite video game is Overwatch, widow main (Meloni#11719)
+- 👋 Hi, I’m @kenncd 
+- 🎀 Kenya Castellanos
+- ⚙️  Industrial and Systems Engineer
+- 🎮 Favourite video game: Overwatch, widow main (Meloni#11719)
 - 📫 Can find me @ kenyacastellanosd@gmail.com
 - ✨화이팅!✨
+- 
 
 <!---
 kenncd/kenncd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
